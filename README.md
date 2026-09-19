@@ -1,5 +1,5 @@
 
-![My Profile Banner](https://github.com/Zrimbie/Banner/blob/main/23e69dece29233829d40d67d4053e4e9.jpg)
+![My Profile Banner](https://github.com/Zrimbie/Banner/blob/main/IMG_20260919_134650.jpg)
 
 About Me!!
 •||•^°Zrimbie♡ pronouns are any!|°^•||•
