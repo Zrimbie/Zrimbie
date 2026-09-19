@@ -3,7 +3,9 @@
 
 About Me!!
 •||•^°Zrimbie♡ pronouns are any!|°^•||•
+
 •°°\\ an artist looking for commissions!!
+
 (⁠つ⁠≧⁠▽⁠≦⁠)⁠つ Loves Branzycraft,(V)flower,
 Ness (Alexis), Bratzmaru ⊂⁠(⁠・⁠▽⁠・⁠⊂⁠)
 
