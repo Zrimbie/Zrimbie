@@ -5,4 +5,4 @@
 ## About Me!!
 Zrimbie♡ pronouns are any!
 
-https://github.com/Zrimbie/Banner/blob/main/9dd77cbd9dbf25215e517770471eba27.jpg
+![Image 1](https://github.com/Zrimbie/Banner/blob/main/9dd77cbd9dbf25215e517770471eba27.jpg)
