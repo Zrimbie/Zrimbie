@@ -1,5 +1,10 @@
 ## Hi there 👋
 
+
+<img src=https://pin.it/48cTTo2MF.png" width="100%" alt="My Profile Banner">
+
+
+
 <!--
 **Zrimbie/Zrimbie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
