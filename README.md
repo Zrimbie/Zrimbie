@@ -12,5 +12,6 @@ Ness (Alexis), Bratz-maru ⊂⁠(⁠・⁠▽⁠・⁠⊂⁠)
 ![My Profile Banner](https://github.com/Zrimbie/Banner/blob/main/IMG_20260919_142433.jpg)
 
 [~!?] Prices aren't decided yet!
-{=} payment = tng, robux, Genesis crystal 
+{=} payment = tng, robux, Genesis crystal
+ 
 ![Image 1](https://github.com/Zrimbie/Banner/blob/main/IMG_20260919_134721.jpg)
