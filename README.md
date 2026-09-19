@@ -7,6 +7,6 @@ About Me!!
 •°°\\ an artist looking for commissions!!
 
 (⁠つ⁠≧⁠▽⁠≦⁠)⁠つ Loves Branzycraft,(V)flower,
-Ness (Alexis), Bratzmaru ⊂⁠(⁠・⁠▽⁠・⁠⊂⁠)
+Ness (Alexis), Bratz-maru ⊂⁠(⁠・⁠▽⁠・⁠⊂⁠)
 
 ![Image 1](https://github.com/Zrimbie/Banner/blob/main/IMG_20260919_134721.jpg)
